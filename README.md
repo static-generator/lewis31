@@ -6,7 +6,7 @@
 - Uncanny Counter
 - Maze Runner
 - Flipped
-#### Favorite Singers
+#### Favorite Singers/Songs
 - Frank Ocean
 - Daniel Ceasar
-- any OPM, RnB songs
+- any OPM and RnB songs
