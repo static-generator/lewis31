@@ -6,7 +6,7 @@
 #### Favorite Movie and Series
 - Uncanny Counter
   #1 ![alt text](https://i.pinimg.com/564x/6a/67/28/6a6728e99c4c03d60bf1d62873ee4c53.jpg)
-- Maze Runner
+- Maze Runner trilogy
     #2 ![alt text](https://i.pinimg.com/736x/8a/06/15/8a0615cbb7ef0f87ca232d09b4610d70.jpg)
 - How to train your dragon: The hidden world
     #3 ![alt text](https://i.pinimg.com/736x/8c/59/54/8c595436d22dd717cb360d8a9b68f28e.jpg)
