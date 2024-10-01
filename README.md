@@ -5,6 +5,7 @@
 -  I like to eat, cook, sleep, watch movies/series and go biking at night.
 #### Favorite Movie and Series
 - Uncanny Counter
+  #1 !(https://ph.pinterest.com/pin/9710955439411122)
 - Maze Runner
 - Flipped
 #### Favorite Singers/Songs
