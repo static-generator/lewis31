@@ -7,7 +7,9 @@
 - Uncanny Counter
   #1 ![alt text](https://i.pinimg.com/564x/6a/67/28/6a6728e99c4c03d60bf1d62873ee4c53.jpg)
 - Maze Runner
+    #2 ![alt text](https://i.pinimg.com/236x/a7/1e/42/a71e429d56cb991e24ac1a9602badd8e.jpg)
 - Flipped
+    #3 ![alt text](https://i.pinimg.com/236x/70/61/78/706178a8cd1decfe9f906ef1eb0f3cea.jpg)
 #### Favorite Singers/Songs
 - Frank Ocean
 - Daniel Ceasar
